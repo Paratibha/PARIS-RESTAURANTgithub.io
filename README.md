@@ -1,0 +1,5 @@
+![pra](https://github.com/user-attachments/assets/db24b864-5533-41ac-af35-e1895f24453d)
+![im](https://github.com/user-attachments/assets/5a7d9b55-ba44-4cac-9378-0cca34e58b1f)
+![5](https://github.com/user-attachments/assets/7524d8b6-6588-43bb-a2bc-3207cfcee8d1)
+![sum](https://github.com/user-attachments/assets/79b8670f-e292-4528-a846-800caca9c661)
+![ro](https://github.com/user-attachments/assets/d50ce761-a384-4589-8e7d-988094af91f8)
